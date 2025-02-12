@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lizethlopez9147
-- 👀 I’m interested in community outreach ,social work and advocacy for thosein need.
+- 👀 I’m interested in community outreach ,social work and advocacy.
 - 🌱 I’m cworking toward my Bachelor's in Human Services to better support and advocate for those in need.
 - 💞️ I’m looking to collaborate on communuty outreach and support programs.
 - 📫 How to reach me (lizlopez9147@gmail.com)
